@@ -1,0 +1,4 @@
+- 👋 Olá, meu nome é Natalia
+- 👀 Sou professora na Escola Estadutal Lídia Sanae Oya
+- 🌱 Leciono nas disciplinas de ciências, biologia, química e tecnologia. 
+- 💞️ Leciono a 3 anos.
